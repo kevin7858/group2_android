@@ -1,2 +1,5 @@
-# group2_android
-We studied at dukwon high school. n we love programming!
+# 부장님제발_GROUP 2 #
+핫~!
+우리는
+강하다~!
+핫~!
